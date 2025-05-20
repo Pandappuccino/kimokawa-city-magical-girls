@@ -1,0 +1,2 @@
+# kimokawa city magical girls
+
